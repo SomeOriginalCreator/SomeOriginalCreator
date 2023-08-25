@@ -1,4 +1,4 @@
-Hello I am Tranquin. \n
-My Discord is justnamedlol. \n
-I make roblox scripts for executers. \n
-I am willing to satisfy anyone who uses/purchases scripts.
+Hello I am Tranquin. 
+My Discord is justnamedlol. 
+I make roblox scripts for executers. 
+I am willing to satisfy anyone who uses/purchas
